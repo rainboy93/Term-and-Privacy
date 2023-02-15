@@ -16,7 +16,7 @@ This privacy notice for Football Teams Wheel ("**Company**," "**we**," "**us**,"
 
 *   Engage with us in other related ways, including any sales, marketing, or events
 
-**Questions or concerns?** Reading this privacy notice will help you understand your privacy rights and choices. If you do not agree with our policies and practices, please do not use our Services. If you still have any questions or concerns, please contact us at amigoapp2020@gmail.com.
+**Questions or concerns?** Reading this privacy notice will help you understand your privacy rights and choices. If you do not agree with our policies and practices, please do not use our Services. If you still have any questions or concerns, please contact us at mr.ntd.lonely@gmail.com.
 
   
 
@@ -275,7 +275,7 @@ Upon your request to terminate your account, we will deactivate or delete your a
 
   
 
-If you have questions or comments about your privacy rights, you may email us at amigoapp2020@gmail.com.
+If you have questions or comments about your privacy rights, you may email us at mr.ntd.lonely@gmail.com.
 
   
 
@@ -467,7 +467,7 @@ More information about our data collection and sharing practices can be found in
 
   
 
-You may contact us by email at amigoapp2020@gmail.com, or by referring to the contact details at the bottom of this document.
+You may contact us by email at mr.ntd.lonely@gmail.com, or by referring to the contact details at the bottom of this document.
 
   
 
@@ -557,7 +557,7 @@ Other privacy rights
 
 *   You may request to opt out from future selling of your personal information to third parties. Upon receiving an opt-out request, we will act upon the request as soon as feasibly possible, but no later than fifteen (15) days from the date of the request submission.
 
-To exercise these rights, you can contact us by email at amigoapp2020@gmail.com, or by referring to the contact details at the bottom of this document. If you have a complaint about how we handle your data, we would like to hear from you.
+To exercise these rights, you can contact us by email at mr.ntd.lonely@gmail.com, or by referring to the contact details at the bottom of this document. If you have a complaint about how we handle your data, we would like to hear from you.
 
   
 
@@ -577,7 +577,7 @@ We may update this privacy notice from time to time. The updated version will be
 
   
 
-If you have questions or comments about this notice, you may email us at amigoapp2020@gmail.com or by post to:
+If you have questions or comments about this notice, you may email us at mr.ntd.lonely@gmail.com or by post to:
 
   
 
